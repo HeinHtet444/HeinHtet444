@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Vasthive
 - 📫 How to reach me heinhtet@vasthive.fo
 - 😄 Pronouns: Hein Htet
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Beer is my bestfriend
 
 <!---
 HeinHtet444/HeinHtet444 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
